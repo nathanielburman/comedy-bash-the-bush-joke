@@ -22,3 +22,4 @@ This is the funniest "Bash the President Bush Joke" ever created by man, woman o
 ## https://www.youtube.com/watch?v=Cw4MPD6I_Ao
 ### this is all just to say that "I am smarter than a Yale studant!"
 ## comedians miss Bush in 2008 https://www.youtube.com/watch?v=67PKjnqfKTc
+# a very powerful meme magic, some will need beware https://www.youtube.com/watch?v=bkIlqFgLgPc
