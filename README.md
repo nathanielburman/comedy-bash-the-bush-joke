@@ -16,3 +16,7 @@ This is the funniest "Bash the President Bush Joke" ever created by man, woman o
 ## https://www.youtube.com/watch?v=Fcgoj-J-gFs
 ## https://www.youtube.com/watch?v=lpkRFHSpvGI
 ## https://www.youtube.com/watch?v=KZ7S-ymyaZ4
+## https://www.youtube.com/watch?v=kssJdMtcSVg
+# to show us how far we all have come
+## https://www.youtube.com/watch?v=Cw4MPD6I_Ao
+### this is all just to say that "I am smarter than a Yale studant!"
