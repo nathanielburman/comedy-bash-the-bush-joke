@@ -6,7 +6,7 @@ This is the funniest "Bash the President Bush Joke" ever created by man, woman o
 3. obtain best list of jokes
 4. determine which is best
 5. choose best joke
-6. there is no best joke
+6. there is no best joke (killroy wuz here!)
 7. there was always a best joke
 8. there always will be a best joke
 9. i once destroyed the best joke
