@@ -24,3 +24,4 @@ This is the funniest "Bash the President Bush Joke" ever created by man, woman o
 ## comedians miss Bush in 2008 https://www.youtube.com/watch?v=67PKjnqfKTc
 # a very powerful meme magic, some will need beware https://www.youtube.com/watch?v=bkIlqFgLgPc
 ## the feedback is your speaker https://www.youtube.com/watch?v=y1siZbHeitA&list=PLr3nJHTe8RSN91_uNupUCWgRm2EWfM_lM&index=5
+## I am a speaker
