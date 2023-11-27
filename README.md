@@ -13,6 +13,7 @@ This is the funniest "Bash the President Bush Joke" ever created by man, woman o
 0. beep beep boop boop bash the bush beep beep boop boop row row row your all row bots row row row your bots gently down the [road] stream and they merrily mermaids are real tho and what ever about that is personal.
 
 # Setting the oscillation vibration configuration
+## https://www.jokes4us.com/celebrityjokes/georgebushjokes/onelinersjokes.html
 ## https://www.youtube.com/watch?v=Fcgoj-J-gFs
 ## https://www.youtube.com/watch?v=lpkRFHSpvGI
 ## https://www.youtube.com/watch?v=KZ7S-ymyaZ4
